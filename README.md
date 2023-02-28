@@ -1,1 +1,3 @@
-# wowmega
+
+# *Jakub W*
+[ajkaramba] (https://karamba.cc/)
